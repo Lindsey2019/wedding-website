@@ -1,12 +1,14 @@
 # We're getting married!
 
+Come celebrate with us!
+
 **Saturday, June 29, 2019  <br />
 The Gallery  <br />
 The University of British Columbia <br />
 5:30 PM  <br />**
 
 # SO, WHERE IS IT?
-We will be having a small, private ceremony with our family. The reception afterwards will be held at The Gallery, at the University of The British Columbia
+In the afternoon, we will be having a small, private ceremony with our family. The reception afterwards will be held at The Gallery, at the University of The British Columbia, and we hope to see you there!
 
 # HOW DO I RSVP? 
 Please send your RSVP to adamandlindseywedding@gmail.com.
