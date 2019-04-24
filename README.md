@@ -8,7 +8,7 @@ The University of British Columbia <br />
 5:30 PM  <br />**
 
 # So, Where is it?
-In the afternoon, we will be having a small, private ceremony with our family. The reception afterwards will be held at The Gallery, at the University of The British Columbia, and we hope to see you there!
+In the afternoon, we will be having a small, private ceremony with our family. The reception afterwards will be held at The Gallery, at the University of British Columbia, and we hope to see you there!
 
 # How do I RSVP? 
 Please send your RSVP to adamandlindseywedding@gmail.com.
