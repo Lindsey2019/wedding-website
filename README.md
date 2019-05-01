@@ -23,7 +23,7 @@ Please meet us at the Gallery for cocktails at 5:30. Dinner will begin at 6:30, 
 We sure don't! It is very kind of you to think of that, but we are really just very happy to be able to spend an evening with those who are important to us. If you absolutely insist, cash is the best gift! It can be anything we want. Alternatively, consider donating in our honour to: https://www.canadahelps.org/en/pages/wedding-registry-19/
 
 # Who did that great drawing on the invitation?
-Our wonderful friend Leelee! She's the best! Feel free to tell her that when you see her at the wedding.
+Our wonderful friend [Leelee](https://www.instagram.com/leelsart/?hl=en)! She's the best! Feel free to tell her that when you see her at the wedding.
 
 # I've got a food allergy!
 Please let us know! We are going to strive to have vegetarian and vegan options, but we want to make sure there is something for everyone. 
