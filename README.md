@@ -28,6 +28,9 @@ Our wonderful friend Leelee! She's the best! Feel free to tell her that when you
 # I've got a food allergy!
 Please let us know! We are going to strive to have vegetarian and vegan options, but we want to make sure there is something for everyone. 
 
+# What's the dress code?
+Adam will be wearing a suit, and Lindsey will be wearing a dress. You should wear something that makes you feel spiffy!
+
 # Wow, you sound prepared!
 I assure you, we are not. 
 
